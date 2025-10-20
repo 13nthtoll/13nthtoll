@@ -1,16 +1,26 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://files.catbox.moe/hg1vq4.png" width="300" height="200"/>
+</p>
+<p align="center"> 
+Lee or Elster ✧ he / she ✧ 19↑ ✧ lesbian
+</p>  
 
-<!--
-**13nthtoll/13nthtoll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"> 
+<strong> Interests: </strong> SIGNALIS, cell of empireo, projmoon* (+ teequeue's lc), rain world (+itlogs), ULTRAKILL, soulsborne, gundam   
+</p>  
 
-Here are some ideas to get you started:
+<p align="center">
+<strong> Other interests: </strong> taxonomy, inverts, vintage electronics, 2000s internet, pet collection games 
+</p>  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> 
+*I'm an old fan and I dont financially support the company anymore. if you got into it through limbus we probably wont get along, sorry
+</p>  
+
+<p align="center"> 
+probably sitting w/ my friend ellie! usually offtab or busy, please whisper!
+</p>  
+
+<p align="center">
+<img src="https://files.catbox.moe/67vgja.png">
+</p>
