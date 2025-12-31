@@ -6,7 +6,7 @@ Lee ✧ he / she ✧ 20↑ ✧ lesbian
 </p>  
 
 <p align="center"> 
-<strong> Interests: </strong> SIGNALIS, cell of empireo, projmoon* (+ teequeue's lc), rain world (+itlogs), ULTRAKILL, soulsborne, godhusk, gundam   
+<strong> Interests: </strong> SIGNALIS, cell of empireo, projmoon* (+ teequeue's lc), rain world (+itlogs), dorohedoro, gundam   
 </p>  
 
 <p align="center">
