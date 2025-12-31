@@ -2,15 +2,15 @@
   <img src="https://files.catbox.moe/hg1vq4.png" width="300" height="200"/>
 </p>
 <p align="center"> 
-Lee or Elster ✧ he / she ✧ 19↑ ✧ lesbian
+Lee ✧ he / she ✧ 20↑ ✧ lesbian
 </p>  
 
 <p align="center"> 
-<strong> Interests: </strong> SIGNALIS, cell of empireo, projmoon* (+ teequeue's lc), rain world (+itlogs), ULTRAKILL, soulsborne, gundam   
+<strong> Interests: </strong> SIGNALIS, cell of empireo, projmoon* (+ teequeue's lc), rain world (+itlogs), ULTRAKILL, soulsborne, godhusk, gundam   
 </p>  
 
 <p align="center">
-<strong> Other interests: </strong> taxonomy, inverts, vintage electronics, 2000s internet, pet collection games 
+<strong> Other interests: </strong> taxonomy, speculative bio, inverts, vintage electronics, 2000s internet, pet collection games 
 </p>  
 
 <p align="center"> 
