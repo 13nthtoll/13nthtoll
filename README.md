@@ -14,7 +14,7 @@ lee / dovekie ✧ he / she ✧ 20↑ ✧ lesbian
 </p>  
 
 <p align="center"> 
-*I'm a long-time fan and I dont financially support the company anymore. if you're a limbus we probably wont get along, sorry
+*I'm a long-time fan and I dont financially support the company anymore. if you're a limbus fan we probably wont get along, sorry
 </p>  
 
 <p align="center"> 
