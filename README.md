@@ -6,7 +6,7 @@ lee / dovekie ✧ he / she ✧ 20↑ ✧ lesbian
 </p>  
 
 <p align="center"> 
-<strong> Interests: </strong> SIGNALIS, CoE, bloodborne, projmoon* (+ teequeue's lc), rain world (+itlogs), grasshopper manu and lots of other stuff!
+<strong> Interests: </strong> SIGNALIS, rain world, 17776, CoE, projmoon*, grasshopper manu and lots of other stuff!
 </p>  
 
 <p align="center">
